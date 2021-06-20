@@ -1,6 +1,23 @@
 - 👋 Hi, I’m @niaanst
-- 👀 I’m interested in Frontend Developer.
-- 📫 You can follow me ad ig : @niaanst
+- :clipboard: I’m interested in Frontend Developer.
+- 📫 You can follow me ad ig : @niaanst.
+- :tanabata_tree: an ENTJ-A person
+
+:mortar_board: : Institut Pertanian Bogor.
+
+Have faith, certainly the help of Allah is near 🌿
+
+
+
+
+       🙋 안녕하세요 환영합니다 GITHUB  좋은 하루 되세요 ✨.
+       
+         좋은 하루 되세요 그리고 당신의 소원이 이루어집니다 🌸
+         
+         💫 " 아무리 막아도 결국 너의 곁인 걸 " ✨
+       
+       
+        
 - ![𝐀 𝐄 𝐈 𝐏 𝐀 𝐓 𝐇 𝐘 _ kny](https://user-images.githubusercontent.com/57323931/122678453-31665880-d211-11eb-9067-0de07901e1f7.gif)
 
 
