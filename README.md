@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @niaanst
 - :clipboard: I’m interested in Frontend Developer, Web Developer and Software Engineer.
-- 📫 You can follow me ad ig : @niaanst.
+- 📫 You can follow me on ig : @niaanst_.
 - :house_with_garden: : Medan, Sumatera Utara
 - :mortar_board: : Institut Pertanian Bogor.
 - :tanabata_tree: an ENTJ-A person
